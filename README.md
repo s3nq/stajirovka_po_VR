@@ -1,0 +1,1 @@
+# stajirovka_po_VR
